@@ -1,0 +1,1 @@
+# exercicio13-11-2026-a-tarde-planilha
